@@ -2,7 +2,7 @@
 
 
 ### Linkedin Post:
-httpswww.linkedin.comfeedupdateurnliactivity7245858119182913537
+https://www.linkedin.com/feed/update/urn:li:activity:7245858119182913537/
 
 
 ### Preview:
